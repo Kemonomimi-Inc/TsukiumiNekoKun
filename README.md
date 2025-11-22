@@ -1,5 +1,7 @@
 # 月海猫少年くん Tsukiumi Neko-kun 🌙🐱 つきうみねこくん
 
+![](AiImages/ChatGPT%20Image%20Nov%2021%2C%202025%2C%2006_01_29%20PM.png?raw=true)
+
 ---
 
 ## English Romaji
